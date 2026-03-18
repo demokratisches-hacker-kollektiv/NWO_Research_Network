@@ -27,3 +27,9 @@ Das NWO Recherchenetzwerk ist eine kollaborative Initiative für IT-Sicherheitsf
 *Toni Cubano - IT Security Researcher*
 
 *Former victim who was targeted and manipulated for so long until I participated myself. I recognized that this was wrong and now work to expose these activities.*
+
+*This investigation was only possible through collaboration with an informant.*
+
+**Contact:**
+- Informant: informant191087@protonmail.com
+- Toni Cubano: nwofrenemies@proton.me
